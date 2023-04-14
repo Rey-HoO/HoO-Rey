@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TL-Rey
+- 👋 Hi, I’m @HoO-Rey
 - 👀 I’m interested in People development and Growth.
 - 🌱 I’m currently learning Labor Law.
 - 💞️ I’m looking to collaborate on the success of our PA Web Platform.
